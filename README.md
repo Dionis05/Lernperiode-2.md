@@ -10,7 +10,8 @@ Die neue Modulle erfolgreich beherrschen und wenn ich Aufträge oder sonst noch 
 
 ## Lernperiode Reflexion
 (In dieser Lernperiode habe ich... (50-100 Wörter))
-Schreibe ich nachher!------------!
+Ich ahbe am Anfang nicht ganz verstanden, was ich eilweise machen muss in den Reflexionen  und planungen, jedoch kann ich jetzt alles dank Herr Lauks Videos. Ich finde, dass ich immer konzentriert und eigenständig im Lern-Atellier gearbeitet habe.
+
 tages reflexion 19.09.2025:
 Ich erinnere mehr nicht mehr so gut daran, jedoch habe ich nochmal nachgeschaut und mehrheitlich meine Ziele erfüllen.
 
@@ -22,16 +23,16 @@ Ich erinnere mehr nicht mehr so gut daran, jedoch habe ich nochmal nachgeschaut 
 3 bis 5 klar messbare Arbeitspakete.
 
 
+- [x ]  An Modull 319 arbeiten und bisschen lernen
+- [x ]  An Modull 431
 - [ ] 
-- [ ] 
-- [ ] 
 
 
 
-tages reflexion 24.10.2025:
+tages reflexion 24.10.2025: Ich fand, dass ich poruktiv war heute. Ich erreichte meine Ziele, bin fast Fertig mit Modull 431.
 
 
 
- Planung x.x.2025:
- 1.) 
- 2.)
+ Planung 31.10.2025:
+ 1.)  Modull 431 endgültig fertig machen
+ 2.)  Modull 319 lernen
