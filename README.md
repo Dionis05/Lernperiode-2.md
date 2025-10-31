@@ -29,10 +29,34 @@ Ich erinnere mehr nicht mehr so gut daran, jedoch habe ich nochmal nachgeschaut 
 
 
 
-tages reflexion 24.10.2025: Ich fand, dass ich poruktiv war heute. Ich erreichte meine Ziele, bin fast Fertig mit Modull 431.
+
+tages reflexion 19.09.2025:
+Ich erinnere mehr nicht mehr so gut daran, jedoch habe ich nochmal nachgeschaut und mehrheitlich meine Ziele erfüllen.
+
+
+ ## FeinPlanung 24.10.2024
+3 bis 5 klar messbare Arbeitspakete.
+
+
+- [x ]  An Modull 319 arbeiten und bisschen lernen
+- [x ]  An Modull 431
+- [ ] 
 
 
 
- Planung 31.10.2025:
- 1.)  Modull 431 endgültig fertig machen
- 2.)  Modull 319 lernen
+
+ 
+
+
+
+
+feinPlanung 31.10.2025:
+ 1.) Portfolio Modull 319 fertig machen
+ 2.) Für Test Modull 319 lernen
+ 3.) 
+
+
+tages reflexion 31.10.2025:
+
+
+
