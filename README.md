@@ -57,6 +57,18 @@ feinPlanung 31.10.2025:
 
 
 tages reflexion 31.10.2025:
+Ich finde ich habe meine Aufgaben erledigt, also ich finde es nicht nur sondern ich habe es auch. 
+
+
+feinPlanung 31.10.2025:
+1.) Modul 162 arbeiten
+2.) An meinem Projekt arbeiten, vom Herrn Schneider.
+3.)
+
+
+tages reflexion 31.10.2025:
+
+
 
 
 
