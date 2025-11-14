@@ -30,7 +30,7 @@ Ich erinnere mehr nicht mehr so gut daran, jedoch habe ich nochmal nachgeschaut 
 
 
 
-tages reflexion 19.09.2025:
+tages reflexion 24.10.2025:
 Ich erinnere mehr nicht mehr so gut daran, jedoch habe ich nochmal nachgeschaut und mehrheitlich meine Ziele erfüllen.
 
 
@@ -66,7 +66,92 @@ feinPlanung 07.10.2025:
 3.)
 
 Tages reflexion 07.10.2025:
+Ich habe alle meine Aufträge erfüllt, ich bin zu frieden mit meiner Leistung.
+
+
+
+----------------------------------------------------------------------
+
+
+ ## Planung 14.11.2025
+3 bis 5 klar messbare Arbeitspakete.
+
+
+- [ ]  Deutsch arbeiten
+- [x ]  Modul 162 weiter arbeiten
+- [ ] 
+
+
+
+## Lernperiode Reflexion 14.11.2025
+(In dieser Lernperiode habe ich... (50-100 Wörter))
 
 
 
 
+
+------------------------------------------------------
+
+
+ feinPlanung 24.10.2025:
+ 1.) An Modull 319 arbeiten und bisschen lernen
+ 2.) An Modull 431
+ 3.) 
+ ## Planung 24.10.2024
+3 bis 5 klar messbare Arbeitspakete.
+
+
+- [x ]  An Modull 319 arbeiten und bisschen lernen
+- [x ]  An Modull 431
+- [ ] ## Lernperiode Reflexion
+(In dieser Lernperiode habe ich... (50-100 Wörter))
+Ich ahbe am Anfang nicht ganz verstanden, was ich eilweise machen muss in den Reflexionen  und planungen, jedoch kann ich jetzt alles dank Herr Lauks Videos. Ich finde, dass ich immer konzentriert und eigenständig im Lern-Atellier gearbeitet habe.
+
+tages reflexion 19.09.2025:
+Ich erinnere mehr nicht mehr so gut daran, jedoch habe ich nochmal nachgeschaut und mehrheitlich meine Ziele erfüllen.
+
+ feinPlanung 24.10.2025:
+ 1.) An Modull 319 arbeiten und bisschen lernen
+ 2.) An Modull 431
+ 3.) 
+ ## Planung 24.10.2024
+3 bis 5 klar messbare Arbeitspakete.
+
+
+- [x ]  An Modull 319 arbeiten und bisschen lernen
+- [x ]  An Modull 431
+- [ ] ## Lernperiode Reflexion
+(In dieser Lernperiode habe ich... (50-100 Wörter))
+Ich ahbe am Anfang nicht ganz verstanden, was ich eilweise machen muss in den Reflexionen  und planungen, jedoch kann ich jetzt alles dank Herr Lauks Videos. Ich finde, dass ich immer konzentriert und eigenständig im Lern-Atellier gearbeitet habe.
+
+tages reflexion 19.09.2025:
+Ich erinnere mehr nicht mehr so gut daran, jedoch habe ich nochmal nachgeschaut und mehrheitlich meine Ziele erfüllen.
+
+ feinPlanung 24.10.2025:
+ 1.) An Modull 319 arbeiten und bisschen lernen
+ 2.) An Modull 431
+ 3.) 
+ ## Planung 24.10.2024
+3 bis 5 klar messbare Arbeitspakete.
+
+
+- [x ]  An Modull 319 arbeiten und bisschen lernen
+- [x ]  An Modull 431
+- [ ] ## Lernperiode Reflexion
+(In dieser Lernperiode habe ich... (50-100 Wörter))
+Ich ahbe am Anfang nicht ganz verstanden, was ich eilweise machen muss in den Reflexionen  und planungen, jedoch kann ich jetzt alles dank Herr Lauks Videos. Ich finde, dass ich immer konzentriert und eigenständig im Lern-Atellier gearbeitet habe.
+
+tages reflexion 19.09.2025:
+Ich erinnere mehr nicht mehr so gut daran, jedoch habe ich nochmal nachgeschaut und mehrheitlich meine Ziele erfüllen.
+
+ feinPlanung 24.10.2025:
+ 1.) An Modull 319 arbeiten und bisschen lernen
+ 2.) An Modull 431
+ 3.) 
+ ## Planung 24.10.2024
+3 bis 5 klar messbare Arbeitspakete.
+
+
+- [x ]  An Modull 319 arbeiten und bisschen lernen
+- [x ]  An Modull 431
+- [ ] 
