@@ -101,7 +101,7 @@ Ich habe meine Aufträge erfüllt und  anschliessend an Modull 162 weitergearbei
 - [ ] ## Lernperiode Reflexion
 (In dieser Lernperiode habe ich... (50-100 Wörter))
 
-
+Alle miene Ziele erreicht und alles beendet , was ich machen wpollte.
 
 ---------------------------------------------------------------
  
@@ -110,8 +110,8 @@ Ich habe meine Aufträge erfüllt und  anschliessend an Modull 162 weitergearbei
 3 bis 5 klar messbare Arbeitspakete.
 
 
-- [ ]
-- [ ]  
+- [ Projekt arebien, Herr schneider ]
+- [ 162 arbeiten ]  
 - [ ]
 
 ## Lernperiode Reflexion
