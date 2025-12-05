@@ -106,7 +106,7 @@ Alle miene Ziele erreicht und alles beendet , was ich machen wpollte.
 ---------------------------------------------------------------
  
 
- ## Planung 31.11.2024
+ ## Planung 31.11.2025
 3 bis 5 klar messbare Arbeitspakete.
 
 
@@ -127,31 +127,46 @@ tages reflexion 31.11.2025:
 
 
 
- feinPlanung .10.2025:
- 1.) An Modull 319 arbeiten und bisschen lernen
- 2.) An Modull 431
+ feinPlanung 05.12.2025:
+ 1.) Modull 162 arbeiten und 4 Aufträge erfüllen
+ 2.) 
  3.) 
- ## Planung 24.10.2024
-3 bis 5 klar messbare Arbeitspakete.
-
-
-- [x ]  An Modull 319 arbeiten und bisschen lernen
-- [x ]  An Modull 431
-- [ ] ## Lernperiode Reflexion
+ 
+- ## Lernperiode Reflexion
 (In dieser Lernperiode habe ich... (50-100 Wörter))
-Ich ahbe am Anfang nicht ganz verstanden, was ich eilweise machen muss in den Reflexionen  und planungen, jedoch kann ich jetzt alles dank Herr Lauks Videos. Ich finde, dass ich immer konzentriert und eigenständig im Lern-Atellier gearbeitet habe.
+Ich habe in dieser Lernperiode 5 Aufträge erfüllt vom Modull 162, damit war ich sehr produktiv und bin auch happy mit meiner Leistung.
+----------------------------------------------------------------------
 
-tages reflexion 19.09.2025:
-Ich erinnere mehr nicht mehr so gut daran, jedoch habe ich nochmal nachgeschaut und mehrheitlich meine Ziele erfüllen.
-
- feinPlanung 24.10.2025:
- 1.) An Modull 319 arbeiten und bisschen lernen
- 2.) An Modull 431
+ feinPlanung 12.12.2025:
+ 1.)
+ 2.) 
  3.) 
- ## Planung 24.10.2024
-3 bis 5 klar messbare Arbeitspakete.
 
 
-- [x ]  An Modull 319 arbeiten und bisschen lernen
-- [x ]  An Modull 431
+ 
 - [ ] 
+- [ ]  
+- [ ]
+
+
+## Lernperiode Reflexion
+(In dieser Lernperiode habe ich... (50-100 Wörter))
+
+-----------------------------------------------------------
+
+ feinPlanung 19.12.2025:
+ 1.)
+ 2.) 
+ 3.) 
+
+
+ 
+- [ ] 
+- [ ]  
+- [ ]
+
+
+## Lernperiode Reflexion
+(In dieser Lernperiode habe ich... (50-100 Wörter))
+
+------------------------------------------------------------
