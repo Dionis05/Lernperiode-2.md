@@ -138,8 +138,8 @@ Ich habe in dieser Lernperiode 5 Aufträge erfüllt vom Modull 162, damit war ic
 ----------------------------------------------------------------------
 
  feinPlanung 12.12.2025:
- 1.)
- 2.) 
+ 1.) 162 Oba fertig machen
+ 2.) AN 162 arbeiten und lernen
  3.) 
 
 
@@ -155,7 +155,7 @@ Ich habe in dieser Lernperiode 5 Aufträge erfüllt vom Modull 162, damit war ic
 -----------------------------------------------------------
 
  feinPlanung 19.12.2025:
- 1.)
+ 1.) 
  2.) 
  3.) 
 
