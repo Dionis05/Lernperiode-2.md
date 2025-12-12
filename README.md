@@ -151,7 +151,7 @@ Ich habe in dieser Lernperiode 5 Aufträge erfüllt vom Modull 162, damit war ic
 
 ## Lernperiode Reflexion
 (In dieser Lernperiode habe ich... (50-100 Wörter))
-
+Alle miene Ziele erreicht und alles beendet , was ich machen wpollte. also meine Oba und an 162 gearbeitet.
 -----------------------------------------------------------
 
  feinPlanung 19.12.2025:
